@@ -1,1 +1,1 @@
-My website is aweomse!  I am going to build so much awesome stuff here
+My website is aweomse!  I am going to build so much awesome stuff here. There is so much code to be written and so little time!!! Aaaarggghhhhh!!! 
